@@ -1,2 +1,2 @@
 # Computasion-Visual
-Si
+Como se escribe el nombre del curso????
